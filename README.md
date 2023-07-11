@@ -104,7 +104,7 @@
 [Unveiling The Legacy Collection In The Doll's House](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Unveiling_the_Legacy_Collection_in_the_Doll%27s_House.html)  
 [Discover Our Iconic Piece - Dita](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Discover_Our_Iconic_Piece_-_Dita.html)  
 [Elodie - A Complete Series](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/ELODIE_-_A_Complete_Series.html)  
-[Discover Our Iconic Piece - Eur%c3%aaka](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Discover_Our_Iconic_Piece_-_Eur%C3%AAka.html)  
+[Discover Our Iconic Piece - Eurêka](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Discover_Our_Iconic_Piece_-_Eur%C3%AAka.html)  
 [The New Lulu Bed - Part Of The Legacy Collection](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/The_New_Lulu_Bed%2C_Part_of_The_Legacy_Collection.html)  
 [Meet Our Diva - Rita](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Meet_our_Diva_-_RITA.html)  
 [Discover Our Statement Piece - Checkers](https://cg-marketing.christopherguy.com/emailblast/2023/HubspotLegacyHTML/Discover_Our_Statement_Piece_-_Checkers.html)  
